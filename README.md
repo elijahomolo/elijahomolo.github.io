@@ -1,1 +1,1 @@
-# elijahomolo.github.io
+Elijah Omolo's Blog
